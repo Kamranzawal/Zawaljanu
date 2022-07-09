@@ -1,1 +1,0 @@
-# Zawaljanu JAN PAKISTAN
